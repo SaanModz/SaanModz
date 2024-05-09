@@ -1,5 +1,5 @@
 ```VIRTUAL```
 
-[Virtual AKM](https://tutwuri.id/0M2YwiC)
+[Virtual AKM](https://sfl.gl/eQGmZ)
 
-[Virtual GSPace](https://tutwuri.id/sDXI3)
+[Virtual GSPace](https://sfl.gl/6QBZ9t6z)
